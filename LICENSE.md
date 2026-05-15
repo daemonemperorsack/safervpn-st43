@@ -1,4 +1,4 @@
-
+vip App for SaferVPN - PPTP-support and money-back-guarantee is the best SaferVPN app, featuring PPTP-support and money-back-guarantee. Secure, fast, and optimized for privacy.
 
 
 
